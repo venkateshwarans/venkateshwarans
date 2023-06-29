@@ -13,5 +13,5 @@
 
 - 😄 Pronouns: He/Him.
 
-- ⚡ Fun fact: Worked in Chennai, Delhi, Bangalore. Now working for a company based in Hyderabad. Waiting for next opportunity in another Indian metro.
+- ⚡ Fun fact: Worked in Chennai, Delhi, Bangalore. Now working in Hyderabad. 
  
